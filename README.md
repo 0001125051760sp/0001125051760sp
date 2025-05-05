@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Murilo Bomfim Melo
 - 👀 I’m interested in ... geografia
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...  A 2 série A do ensino médio
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... pelo instagram @murill_osp
 - 😄 Signo: ... Escorpiao
