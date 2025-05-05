@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... pelo instagram @murill_osp
 - 😄 Signo: ... Escorpiao
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... sou inteligente ajudo todos que precisarem dependendo do tema
 
 <!---
 0001125051760sp/0001125051760sp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
